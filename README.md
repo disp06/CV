@@ -2,7 +2,7 @@
 **Male, 39 years old**  
 
 **Contact Information:**
-- Phone: +7 (916) 9169537700 (Preferred)  
+- Phone: +7 (916) 953-77-00 (Preferred)  
 - Email: [disp06@ya.ru](mailto:disp06@ya.ru)
 
 **Location:** Moscow, Russia  
@@ -85,4 +85,4 @@
 - **Hobbies:** AI, photography, reading, and staying updated with new technologies.
 
 **Preferred Communication:** Phone  
-+7 (916) 9169537700
++7 (916) 953-77-00
